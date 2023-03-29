@@ -1,2 +1,2 @@
 # Quiz
-# jkjdcekdcjwdwdw ... vef..ee school project wip thing.
+jkjdcekdcjwdwdw ... vef..ee school project wip thing.
